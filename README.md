@@ -6,6 +6,11 @@
 - 😄 Pronouns: She/They
 - ⚡ Fun fact: I'm obsessed with my work
 
+Here's something I made for the ladies: https://too-good-to-be-true-test.vercel.app/
+Here's something I'm a part of: sparkeefy.com
+Here's a website I launched, end-to-end: kaaldnach.com
+Here's me on Linkedin: https://www.linkedin.com/in/khwaisharora/
+
 <!---
 Kryst4lDem0ni4s/Kryst4lDem0ni4s is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
