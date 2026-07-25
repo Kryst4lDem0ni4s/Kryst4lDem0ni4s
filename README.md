@@ -2,7 +2,7 @@
 - 👀 I’m interested in: Highly Complex projects that take all nighters to resolve
 - 🌱 I’m currently learning: AI/ML, R&D, and Enterprise Technology
 - 💞️ I’m looking to collaborate on: AI/ML projects and startup/enterprise opportunities
-- 📫 How to reach me: khwaisharora28@gmail.com
+- 📫 How to reach me: khwaisharora.biz@gmail.com
 - 😄 Pronouns: She/They
 - ⚡ Fun fact: I'm obsessed with my work
 
